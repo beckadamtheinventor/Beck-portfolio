@@ -11,7 +11,7 @@ I can make estimates over the phone upon request, after initial communication ov
 Also I will perform service/troubleshooting over the phone upon request.
 Over the phone or online chat, at $30 an hour.
 
-I can be reached at ``beckadamtheartist@gmail.com``.
+I can be reached at ``beck@beck.com``.
 
 Please note that I am doing this freelance, and in my spare time.
 If making your website takes longer than agreed upon, of my own fault, I will discount the cost.
